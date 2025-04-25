@@ -2,7 +2,7 @@
 - 👀 I’m interested in rhythm Games
 - 🌱 I’m currently learning to write or replicate a project
 - 💞️ I’m looking to collaborate on somebody friendly
-- 📫 How to reach me : <prampina@foxmai.com>
+- 📫 How to reach me : <prampina@foxmail.com>
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Because I have no project experience, I can hardly find a job, so I come to tutoring...
 
